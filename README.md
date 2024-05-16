@@ -2,3 +2,5 @@
 ![image](https://github.com/FikriBaihaqi/Tugas10_20220140100/assets/161295983/6afee395-b7a9-4eff-8c2e-dadc674acb56)
 ![Uploading image.png…]()
 ![Uploading image.png…]()
+![Screenshot (573)](https://github.com/FikriBaihaqi/Tugas10_20220140100/assets/161295983/bbdd997a-cb0a-4b1e-951f-2f96e2a84115)
+![Screenshot (576)](https://github.com/FikriBaihaqi/Tugas10_20220140100/assets/161295983/ecfa05d4-3852-4d57-9543-58228f44b96b)
